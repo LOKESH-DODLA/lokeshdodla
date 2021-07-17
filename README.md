@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @lokeshdodla
 - 👀 I’m interested in ... INTRACT WITH PEOPLE , DIFFERENT INNOVATIVE PROJECTS , DESIGN AND DEVELOPMENT .
 
-      ABOUT : ---
+     ABOUT : ---
       
-       I am LOKESH DODLA. I completed my GRADUATION(B-TECH) in MECHANICAL ENGINEERING (ME) with 6.83 CGPA at Y.S.R Engineering college of Yogi Vemana University.
+     I am LOKESH DODLA. I completed my GRADUATION(B-TECH) in MECHANICAL ENGINEERING (ME) with 6.83 CGPA at Y.S.R Engineering college of Yogi Vemana University.
 I am self-motivated, a Quick Learner, a Problem Solver and a Mentor .
 
 
